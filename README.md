@@ -1,4 +1,4 @@
-<br>Hey there ! I'm Tija 👋<br><br>Technical Product Engineer  ·  Aspiring PM  ·  2nd Year Uni<br><br>About Me :<br><br>🔨 I'm currently working on<br>AI products at my internship — learning how real features get shipped<br>🤝 I'm looking for help with<br>Navigating the eng → PM transition & finding product mentors<br>🌱 I'm currently learning<br>Product Management — certificates + hands-on at an AI company<br>💬 Ask me about<br>Technical product thinking, breaking into PM from eng, AI tools
+<br>Hey there ! I'm Tija 👋<br><br>Technical Product Engineer  ·  Aspiring PM  ·  3rd Year Uni<br><br>About Me :<br><br>🔨 I'm currently working on<br>AI products at my internship — learning how real features get shipped<br>🤝 I'm looking for help with<br>Navigating the eng → PM transition & finding product mentors<br>🌱 I'm currently learning<br>Product Management — certificates + hands-on at an AI company<br>💬 Ask me about<br>Technical product thinking, breaking into PM from eng, AI tools
 
 
 ## 🌐 Socials:
